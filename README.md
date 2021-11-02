@@ -9,7 +9,7 @@
                       INSTAGRAM:https://www.instagram.com/nagendra_srikar_/
                       
                       
-                      ****MY CODEFORCES HANDLE:https://codeforces.com/profile/SRIKARN****
+                      MY CODEFORCES HANDLE:  https://codeforces.com/profile/SRIKARN
                       
 
 <!---
